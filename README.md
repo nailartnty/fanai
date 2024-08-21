@@ -1,3 +1,5 @@
 # Fanai Team Asekkk 🔥🌼 
 - Naila pacar Asahi
-- Safa pacar ... (liat di pp)
+- Safa pacar Juha
+
+Jadi kita lagi belajar branch dan merge di github gaess
